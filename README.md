@@ -1,2 +1,2 @@
-# windows11实时字幕垃圾机翻窗口
+# ELPSYKONGROO
 Nothing, just for fun
